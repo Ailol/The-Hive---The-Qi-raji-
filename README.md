@@ -1,8 +1,14 @@
 # Motif'bit{
-#   Feelingz we dont capitalize on yet, space does. you can farm good vibes and all for space. they know what to do with it
-#}
+##  Feelingz we dont capitalize on yet, space does. you can farm good vibes and all for space. they know what to do with it
+##}
 
 ### here is to be a space guid'o on the above premise :) 
+as these are MATRIX(Brain and mind, muscle and 'phibre and other) updates from these people :) one can be proud, let to 
+even us rethinkin on 10 amenmendts the s'bit, and to web3 movement becoming suddenly project web, then projected os, then came the big one, bit'memory os of throwing programs in, then running a regex where now
+
+we are at S.O.FUCKING.S there is a layer hehe :) so things happening at 2 novemeber 11/2026<-scary! 2/11(sii, krist a'cartell!)
+
+find a good "stupid cause" like mine, sugababè and spicy babè, "babe for someone" to attune to naxxramas ;) 
 
 > this one goes to the jens and jonas krew and norwegian politics, smithing is the MOST important part of development, proper smithing :)
 > 
