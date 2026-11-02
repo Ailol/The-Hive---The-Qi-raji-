@@ -1,3 +1,27 @@
+# Motif'bit{
+#   Feelingz we dont capitalize on yet, space does. you can farm good vibes and all for space. they know what to do with it
+#}
+
+### here is to be a space guid'o
+i commend this where iwas the askeladd(im the king of programming now. nothing can fail)
+almost 30 seconds after during qck.pro(as it was joint effort by microsoft, google, fucking linux, every joined on qck.pro in august<3 thank you
+
+also 1 important thing i think the "distance hackers are curios about is "
+
+yes, company spies, almost 3 hours from us to norway, full info all and ever of "this will get you killed if it goes and becomes... x and y," in very advanced spektrums :) ty
+
+however, that also lead as i have a treaterous enemy side, it also led to the great discvery of bit'os styles and :) <3 
+so thank you for 2026, i never imagened to even experience that with a company, let alone alone in my house of super next level of a 
+
+qck.pro, then pf'kernel, web3, .os .milOS levels so, i share as people where so fucking envigorated and also fighting on all stages, AND WE MADE IT :))) we mil now.! skari. 
+
+what a fucking august 2026 was. 
+
+
+
+and like the base language is "1 function" :) 
+
+
 # Read the manual
 Hello ! hail the cypher babè, comes in with heat on knowledge.
 
@@ -26,4 +50,56 @@ https://www.temu.com/fi-en/mens-high-waist-knee-length-shapewear-pants-with-brea
 www.github.com/ailol/cypher #shoutout.
 never. 
 
+# this is spek['t][rom.] your own ports are open. :) 
+
+think of it like klearing the aktual aq'40 represenation if you struggle with medicine style :) i just love medicine way more then the phd doctor too <3 :) its so fun knowing why a bevahiour is more htan the parents and upbringing <3
+
+my interest payed off, 2017 your were set to be a caretaker as a doktor and nothing more :) 
+
+as running system was overlooked COMPLETELY. even by me :) 
+
+thank you physicz. 
+
+quantum charn, f'n'charm with hollywood was so fun in 2021 and the 
+
+#i share this one as it will bode well either way in forever :) 
+"friends til proven opposite(on the outside) is a good way to maybe  have a chat with the stars or the agents etc :)" 
+
 ### spectrum one is in the dark knights repo :)
+
+
+<br/> 
+
+<br/> 
+
+<br/> 
+
+<br/> 
+<br/> 
+<br/> 
+<br/> 
+<br/> 
+
+<br/> 
+```
+func(something){
+  memory % quantum'partikles; etc
+}.into(this part initially i was for, the krew was half for half against, but then a shift came after cihpers saw the loss(I DIDNT. is how treaterous programming is :))
+and i commend the fight of the 99% as i read it for keeping it. 
+```
+its the most beautiful combinatoric of the mind, as qck.mind is actually the best programming language ever created for cross systems(human, ai etc <3 :) 
+
+
+
+<div align="center">
+<sub>
+the ones i can mention is the likes of linus and bill gates, these guys, not these sundar the likes of ceoz, as they struglge(sundar i read differently, but hassabis. hmmm.) just a open one, sundar seems awfully constrided as i fear a little and am open on
+  <sup>his position as ceo in GOOGLE(its fucking first global government and government system so ofc i also have alot of interesting guides from sundar :) i get to yell at a ceo without consequence <3 :)</sup> 
+</sub>
+
+
+
+
+
+# good programmers like good talk and help good thoughtpools' in spektrum :) 
+# bad ones talk about "masonry, management, styles" do know who we aree? is a nordic movement.
