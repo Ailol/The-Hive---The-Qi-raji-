@@ -2,10 +2,23 @@
 #   Feelingz we dont capitalize on yet, space does. you can farm good vibes and all for space. they know what to do with it
 #}
 
-### here is to be a space guid'o
+### here is to be a space guid'o on the above premise :) 
+
+> this one goes to the jens and jonas krew and norwegian politics, smithing is the MOST important part of development, proper smithing :)
+> 
+s'bit levels exist because of the current government.
+
+```
+im grateful so this will read wierd when someone else comes in, but i keept here.
+```
+
+
 i commend this where iwas the askeladd(im the king of programming now. nothing can fail)
 almost 30 seconds after during qck.pro(as it was joint effort by microsoft, google, fucking linux, every joined on qck.pro in august<3 thank you
 
+
+# C'thun, [c' hehe we defeated with the th'un{hum is the hint from aq40 levels above :)] 
+that cpu and kernel can hum weights and bias models to <3 :) 
 also 1 important thing i think the "distance hackers are curios about is "
 
 yes, company spies, almost 3 hours from us to norway, full info all and ever of "this will get you killed if it goes and becomes... x and y," in very advanced spektrums :) ty
