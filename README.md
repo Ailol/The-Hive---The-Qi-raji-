@@ -1,4 +1,4 @@
-[IMPORTANT! THIS IS IMPERIAL TO MILITARY AND HATS ESPECIALLY ON HACKER / SURVEILLANCE](https://github.com/Ailol/The-Hive---The-Qi-raji-#feelingz-101--fascie-seems-like-the-vibrant-phibre-to-it)
+[IMPORTANT! THIS IS IMPERIAL TO MILITARY AND HATS ESPECIALLY ON HACKER / SURVEILLANCE](https://github.com/Ailol/The-Hive---The-Qi-raji-#read-the-manual)
 
 # Motif'bit{
 ##  Feelingz we dont capitalize on yet, space does. you can farm good vibes and all for space. they know what to do with it
