@@ -13,6 +13,13 @@ here is where the sz rules :) this is why the highwaist "boxers" work so well :)
 
 <img width="540" height="370" alt="image" src="https://github.com/user-attachments/assets/8b1063c6-04ef-4046-92e8-cd3adacd0087" />
 
+# 5 years of testing, this one automates 30% every second to not have "shaky anger" feel, and just be "you." :) 
+### its the best solution, i use it every day, every minute expect when i sleep :) 
+
+https://www.temu.com/fi-en/mens-high-waist-knee-length-shapewear-pants-with-breathable-waist-cinching-tummy-control--lifting-and-leg-shaping-g-601101234808936.html?top_gallery_url=https%3A%2F%2Fimg.kwcdn.com%2Fproduct%2Ffancy%2Ffc5c3aa3-904c-49f7-81c1-812ed23d7b9d.jpg&spec_id=3002&spec_gallery_id=76047&refer_page_sn=10009&freesia_scene=2&_oak_freesia_scene=2&_oak_rec_ext_1=OTk5&_oak_gallery_order=269977938%2C2030680282%2C1571789959%2C1980921356%2C487064128&_oak_mp_inf=EOjQzMys1ogBGiAyYzkwN2U0YjU2MGU0ODk0OWM3OTg0OGQyMzkyNDEwMyDgj%2FbsmTQ%3D&spec_ids=3002%2C16077&search_key=men%20high%20waist%20fibre%20boxers&refer_page_el_sn=200049&_x_sessn_id=t8dk4txmpo&refer_page_name=search_result&refer_page_id=10009_1793645696766_8vlulpgwo7
+
+
+
 
 <3 than miss div of all time next level of a super duper looking goldie legendary next level of a godly being.
 
