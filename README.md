@@ -1,5 +1,13 @@
 [IMPORTANT! THIS IS IMPERIAL TO MILITARY AND HATS ESPECIALLY ON HACKER / SURVEILLANCE](https://github.com/Ailol/The-Hive---The-Qi-raji-#read-the-manual)
 
+# Mode network is THE best word to start understanding why programming, devops etc +++ is PSYCH CORE. (1.6 rates and updaters is key cipher) to clear wailing caverns.
+
+'default mode network is the place to look for setting speedrunnerz' settings :) tickrate you know is what fibreglass of fireblanket improves from 64 tickz to 128 tickz.
+
+net_graph 333 (wtf) from cs.16, and also ex_interp 0.1, then cl_update 101, cl_cmdrate 101 , rate 76800, + the psych + the medicine + pharma + d'term + ai, + attention
+
+
+
 # Motif'bit{
 ##  Feelingz we dont capitalize on yet, space does. you can farm good vibes and all for space. they know what to do with it
 ##}
